@@ -1,7 +1,7 @@
 # Hi there 👋 
 ### **Welocome to my profile**
 ## My name is **Sandhya Mainali**
-**sandhyamainali/sandhyamainali** 
+
 🧑‍🎓 I am BSCIT student <br>
 🧑‍💻 I am currently working on **React Project** <br>
  🖥️ I am looking forward to make my career as a  **developer**<br>
