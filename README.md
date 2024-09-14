@@ -1,5 +1,5 @@
 # Hi there 👋 
-### **Welocome to my profile**
+### **Welcome to my profile**
 ## My name is **Sandhya Mainali**
 
 🧑‍🎓 I am BSCIT student <br>
