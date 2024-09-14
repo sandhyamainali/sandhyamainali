@@ -1,6 +1,6 @@
-# Hi there 👋
-### ** Welocome to my profile **
-## My name is ** Sandhya Mainali **
+# Hi there 👋 🙂
+### **Welocome to my profile**
+## My name is **Sandhya Mainali**
 **sandhyamainali/sandhyamainali** 
 🧑‍🎓 I am BSCIT stdudent <br>
 🧑‍💻 I am currently working on **React Project** <br>
