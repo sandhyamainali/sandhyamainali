@@ -1,4 +1,4 @@
-# Hi there 👋 🙂
+# Hi there 👋 
 ### **Welocome to my profile**
 ## My name is **Sandhya Mainali**
 **sandhyamainali/sandhyamainali** 
