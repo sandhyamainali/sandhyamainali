@@ -9,7 +9,7 @@
 💬 Ask me about anything, I am happy to help
 
 📫Get in Touch:
-[🔗 LinkedIn](https://www.linkedin.com/public-profile/settings?trk=d_flagship3_profile_self_view_public_profile)
+[🔗 LinkedIn](https://www.linkedin.com/in/sandhya-mainali-487a98260/)
 
 
 
